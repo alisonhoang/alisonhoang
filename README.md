@@ -16,7 +16,7 @@
  i wanna code a lot from <ins>now</ins> lol
  
   **btw i like music a lot** :grinning:
->here's my RYM accout [rateyourmusic](https://rateyourmusic.com/~AlisonHoang](https://rateyourmusic.com/~AlisonHoang))
+>here's my RYM accout [rateyourmusic](https://rateyourmusic.com/~AlisonHoang)
 
  ![japanesebeautifulgirl](https://image.aladin.co.kr/community/myface/pt_7012361401190896.jpg)
  
